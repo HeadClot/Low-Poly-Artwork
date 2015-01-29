@@ -5,4 +5,4 @@ All artwork in this repoistory is licensed under the Creative Commons Attributio
 
 http://creativecommons.org/licenses/by/4.0/
 
-If you would like to use my artwork feel free just credit me. :)
+If you would like to use my artwork feel free just to use it - credit me if you do so. :)
